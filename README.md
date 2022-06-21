@@ -1,4 +1,4 @@
-### Olá! Eu sou o Emrson Peixoto ✌️
+### Olá! Eu sou o Emerson Peixoto ✌️
 
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/peixoto.exe7)
